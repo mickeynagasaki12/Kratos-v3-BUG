@@ -2,7 +2,7 @@
 
 <h1 align="center">ꪶ𝙆𝙧𝙖𝙩𝙤𝙨 𝗕𝗼𝘁-𝗩3ꫂ<br></h1>
 <p align="center">
-<img src="https://telegra.ph/file/1a1078c9625478d4d9ac4.jpg" />
+<img src="https://telegra.ph/file/1e545a3e6d9383d1c6988.jpg" />
 </p>
 
 <p align="center">
